@@ -1,1 +1,1 @@
-#BridgeLabz-Traning-2K
+#BridgeLabz-Training-2Y
